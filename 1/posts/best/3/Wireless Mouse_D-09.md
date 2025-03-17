@@ -7,7 +7,7 @@
 
 ## Product Overview
 The **Wireless Mouse, D-09** is a high-performance, ergonomic computer mouse designed for both productivity and comfort. Whether you're working, gaming, or browsing, this mouse delivers precision, reliability, and a seamless wireless experience. Its sleek design and advanced features make it a must-have for anyone looking to upgrade their computer setup.
-
+https://m.media-amazon.com/images/G/01/apparel/rcxgs/tile._CB483369110_.gif
 ---
 
 ## Key Features
