@@ -1,7 +1,9 @@
 # Echo Dot (Newest Model) with WiZ 60W A19 LED Smart Color Bulb – Smart Home Bundle
 
 📌 **Overview**  
-(https://www.digitalstore.co.ke/cdn/shop/files/AmazonEchoDot_5thGen_withoutClock-i5.jpg?v=1698335364)
+![Echo Dot (Newest Model)](https://www.digitalstore.co.ke/cdn/shop/files/AmazonEchoDot_5thGen_withoutClock-i5.jpg?v=1698335364)
+
+
 The **Echo Dot (Newest Model)** paired with the **WiZ 60W A19 LED Smart Color Bulb** is the perfect smart home bundle for anyone looking to upgrade their living space. Control your lights and smart devices with just your voice or the WiZ app, and enjoy seamless integration with Alexa and Matter compatibility.
 
 🔗 **[👉 Buy the Echo Dot with WiZ Smart Bulb on Amazon](https://amzn.to/4idyICh)**  
