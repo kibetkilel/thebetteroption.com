@@ -3,8 +3,7 @@
 
 ## 📌 Overview  
 
-![Wireless Mouse D-09](https://ke.jumia.is/unsafe/fit-in/500x500/filters:fill(white)/product/48/0520592/1.jpg?2894)  
-(https://www.digitalstore.co.ke/cdn/shop/files/AmazonEchoDot_5thGen_withoutClock-i5.jpg?v=1698335364)
+![Wireless Mouse D-09](https://ke.jumia.is/unsafe/fit-in/500x500/filters:fill(white)/product/48/0520592/1.jpg?2894) 
 
 The **D-09 Wireless Mouse** is an ergonomic, high-precision mouse designed for productivity, gaming, and everyday use. With **seamless wireless connectivity, long battery life, and universal compatibility**, it’s the perfect upgrade for any computer setup.  
 
