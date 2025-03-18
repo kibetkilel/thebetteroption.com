@@ -82,5 +82,5 @@ This is an **Amazon Affiliate project**. If you find this helpful, consider purc
 ## Conclusion
 The **Wireless Mouse, D-09** is a reliable, affordable, and versatile option for anyone in need of a high-performing wireless mouse. Whether you're working from home, gaming, or traveling, this mouse delivers exceptional performance and comfort. Don’t miss out on this fantastic product!
 
-[👉 Buy Now on Amazon](https://amzn.to/4hdeQ0R)  
+[👉 Buy Now on Amazon](https://amzn.to/43Q49hy)  
 *As an Amazon Associate, I earn from qualifying purchases.*
