@@ -2,7 +2,7 @@
 
 📌 **Overview**  
 
-(https://media.wired.com/photos/60b7cb0a9731be96a5fef43d/master/w_1920,c_limit/Gear-Google-Nest-Hub_Mist-SOURCE-Google.jpg)
+![Google Nest Hub (2nd Gen)](https://media.wired.com/photos/60b7cb0a9731be96a5fef43d/master/w_1920,c_limit/Gear-Google-Nest-Hub_Mist-SOURCE-Google.jpg)
 
 The **Google Nest Hub (2nd Gen)** is a versatile smart display that combines the power of Google Assistant with a sleek, compact design. Whether you're managing your smart home, streaming videos, or checking your schedule, the Nest Hub is your go-to device for convenience and efficiency.
 
