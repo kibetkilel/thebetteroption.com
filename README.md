@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://github.com/kibetkilel/thebetteroption.com">
-    <img src="https://your-logo-url.com/logo.png" width="200px" alt="The Better Option Logo">
+    <img src="C:\Users\Bench\Documents\Projects\thebetteroption\logo.png" width="200px" alt="The Better Option Logo">
   </a>
 </p>
 
