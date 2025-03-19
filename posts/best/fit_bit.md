@@ -1,4 +1,4 @@
-# Fitbit Charge 6 – The Ultimate Fitness Tracker for 2024
+# Fitbit Charge 6 – The Ultimate Fitness Tracker for 2025
 
 📌 **Overview**  
 

@@ -21,7 +21,7 @@
     <b>Google Nest Hub (2nd Gen)</b> – The Ultimate Smart Display for Your Home</a></li>
 
   <li>⌚ <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/fit_bit.md">
-    <b>Fitbit Charge 6</b> – The Ultimate Fitness Tracker for 2024</a></li>
+    <b>Fitbit Charge 6</b> – The Ultimate Fitness Tracker for 2025</a></li>
 
   <li>📍 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/apple_airtag.md">
     <b>Apple AirTag (4-Pack)</b> – Never Lose Your Belongings Again</a></li>
