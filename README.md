@@ -29,11 +29,8 @@
   <li>🍳 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/ninja_foodi.md">
     <b>Ninja Foodi 6-in-1 Air Fryer </b> – The Ultimate Kitchen Appliance for 2025</a></li>
 
-<li>📍 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/supersonic.md">
-    <b>Dyson Supersonic Hair Dryer </b> – The Ultimate Hair Styling Tool for 2025 </a>
-
-</li>
-    
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/supersonic.md">
+    <b>Dyson Supersonic Hair Dryer </b> – The Ultimate Hair Styling Tool for 2025</a></li>
 </ul>
 
 ---
