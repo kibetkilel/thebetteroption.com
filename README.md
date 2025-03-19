@@ -35,6 +35,11 @@
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/playstation.md">
     <b>PlayStation 5 DualSense Wireless Controller </b> – The Ultimate Gaming Experience </a></li>
+
+    <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/logitech_mouse.md">
+    <b>PlayStation 5 DualSense Wireless Controller </b> – The Ultimate Gaming Experience </a></li>
+
+
 </ul>
 
 
