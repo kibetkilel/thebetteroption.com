@@ -2,7 +2,7 @@
 
 📌 **Overview**  
 
-![Logitech MX Master 3S Wireless Mouse](https://m.media-amazon.com/images/G/01/apparel/rcxgs/tile._CB483369110_.gif)
+![Logitech MX Master 3S Wireless Mouse](https://digitalfuture.co.ke/wp-content/uploads/2023/10/Logitech-MX-Master-3S-Wireless-Mouse..jpg)
 
 The **Logitech MX Master 3S Wireless Mouse** is a premium ergonomic mouse designed for professionals who demand precision, comfort, and efficiency. With its advanced tracking, customizable buttons, and seamless multi-device connectivity, it’s the perfect tool for boosting productivity.
 
