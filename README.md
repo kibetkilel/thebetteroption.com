@@ -26,6 +26,11 @@
 
   <li>📍 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/apple_airtag.md">
     <b>Apple AirTag (4-Pack)</b> – Never Lose Your Belongings Again</a></li>
+
+<li>📍 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/ninja_foodi.md">
+    <b>Apple AirTag (4-Pack)</b> – Never Lose Your Belongings Again</a></li>
+
+    
 </ul>
 
 ---
