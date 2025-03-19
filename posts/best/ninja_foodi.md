@@ -1,6 +1,9 @@
 # Ninja Foodi 6-in-1 Air Fryer – The Ultimate Kitchen Appliance for 2025
 
 📌 **Overview**  
+
+![Ninja Foodi 6-in-1 Air Fryer](https://m.media-amazon.com/images/I/511+uXaPLlL._AC_SL1001_.jpg) 
+
 The **Ninja Foodi 6-in-1 Air Fryer** is a versatile kitchen appliance that combines six cooking functions in one device. From air frying and roasting to baking and dehydrating, the Ninja Foodi makes it easy to prepare healthy, delicious meals with minimal effort.
 
 🔗 **[👉 Buy Ninja Foodi 6-in-1 Air Fryer on Amazon](https://amzn.to/4431a5k)**  
