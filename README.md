@@ -1,11 +1,15 @@
+# 🌎 The Better Option - Sitemap
 
-# SITEMAP
-<ul>
-  <li><a href="https://thebetteroption.com/d-09-wireless-mouse">D-09 Wireless Mouse – Best Budget Ergonomic Mouse for Work & Gaming</a></li>
-  <li><a href="https://thebetteroption.com/echo-dot-wiz-bulb">Echo Dot (Newest Model) with WiZ 60W A19 LED Smart Color Bulb – Smart Home Bundle</a></li>
-  <li><a href="https://thebetteroption.com/google-nest-hub">Google Nest Hub (2nd Gen) – The Ultimate Smart Display for Your Home</a></li>
-  <li><a href="https://thebetteroption.com/fitbit-charge-6">Fitbit Charge 6 – The Ultimate Fitness Tracker for 2024</a></li>
-  <li><a href="https://thebetteroption.com/apple-airtag-4-pack">Apple AirTag (4-Pack) – Never Lose Your Belongings Again</a></li>
-</ul>
+Welcome to **The Better Option**! Here’s a list of our best product reviews.  
 
+## 📝 Sitemap
 
+| 🔗 Product Name  | 🛒 Link |
+|------------------|--------|
+| 🖱️ **D-09 Wireless Mouse** – Best Budget Ergonomic Mouse | [Read More](https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/Wireless%20Mouse_D-09.md) |
+| 🔊 **Echo Dot (Newest Model)** with WiZ 60W A19 LED Smart Bulb | [Read More](https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/echo_dot.md) |
+| 📺 **Google Nest Hub (2nd Gen)** – Ultimate Smart Display | [Read More](https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/nest_hub.md) |
+| ⌚ **Fitbit Charge 6** – Best Fitness Tracker 2024 | [Read More](https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/fit_bit.md) |
+| 📍 **Apple AirTag (4-Pack)** – Never Lose Your Stuff Again | [Read More](https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/apple_airtag.md) |
+
+---
