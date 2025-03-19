@@ -2,7 +2,7 @@
 
 📌 **Overview**  
 
-![Dyson Supersonic Hair Dryer](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQaSYkQSecpbbgN5pHtQkZym6LEN9s7QPitZQ&s) 
+![Dyson Supersonic Hair Dryer](https://m.media-amazon.com/images/I/71TKXMyDA7L._AC_SL1500_.jpg) 
 
 The **Dyson Supersonic Hair Dryer** is a revolutionary hair styling tool that combines cutting-edge technology with a sleek, ergonomic design. Designed to protect your hair from extreme heat damage, this hair dryer delivers fast drying and precise styling for all hair types.
 
