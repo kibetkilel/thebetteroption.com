@@ -1,6 +1,9 @@
 # Dyson Supersonic Hair Dryer – The Ultimate Hair Styling Tool for 2024
 
 📌 **Overview**  
+
+![Dyson Supersonic Hair Dryer](https://m.media-amazon.com/images/G/01/apparel/rcxgs/tile._CB483369110_.gif) 
+
 The **Dyson Supersonic Hair Dryer** is a revolutionary hair styling tool that combines cutting-edge technology with a sleek, ergonomic design. Designed to protect your hair from extreme heat damage, this hair dryer delivers fast drying and precise styling for all hair types.
 
 🔗 **[👉 Buy Dyson Supersonic Hair Dryer on Amazon](https://amzn.to/3Y5KeYf)**  
