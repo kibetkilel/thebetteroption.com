@@ -1,7 +1,6 @@
 <p align="center">
   <a href="https://github.com/kibetkilel/thebetteroption.com">
    <img src="https://raw.githubusercontent.com/kibetkilel/thebetteroption.com/main/logo.png" width="200px" alt="The Better Option Logo">
-
   </a>
 </p>
 
@@ -12,7 +11,7 @@
 ## 📌 Featured Reviews  
 
 <ul>
-  <li>📌 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/Wireless%20Mouse_D-09.md">
+  <li>🖱️ <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/Wireless%20Mouse_D-09.md">
     <b>D-09 Wireless Mouse</b> – Best Budget Ergonomic Mouse for Work & Gaming</a></li>
 
   <li>💡 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/echo_dot.md">
@@ -27,21 +26,13 @@
   <li>📍 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/apple_airtag.md">
     <b>Apple AirTag (4-Pack)</b> – Never Lose Your Belongings Again</a></li>
 
+  <li>🍳 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/ninja_foodi.md">
+    <b>Ninja Foodi 6-in-1 Air Fryer </b> – The Ultimate Kitchen Appliance for 2025</a></li>
 
-
-
-<li>📍 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/ninja_foodi.md">
-    <b>Ninja Foodi 6-in-1 Air Fryer </b> – The Ultimate Kitchen Appliance for 2025</a>
-
-</li>
-
-<li>📍 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/supersonic.md">
-    <b>Dyson Supersonic Hair Dryer </b> – The Ultimate Hair Styling Tool for 2025 </a>
-
-</li>
-    
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/supersonic.md">
+    <b>Dyson Supersonic Hair Dryer </b> – The Ultimate Hair Styling Tool for 2025</a></li>
 </ul>
 
 ---
 
-✨ *Stay tuned for more in-depth reviews!* 🚀
+✨ *Stay tuned for more in-depth reviews!* 🚀  
