@@ -20,7 +20,7 @@ The **Gravity Blanket** was a game-changer for me. Its gentle weight (I chose th
 ![LectroFan White Noise Machine](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwNPtM5O1vBfSanyKIw3jYl0wzW3lE8HYUVw&s)  
 *Alt Text: LectroFan White Noise Machine - Best Sound Machine for Sleep*
 
-Living in a noisy neighborhood made it hard to sleep, but the **LectroFan White Noise Machine** solved that problem. It offers 20 different sound options, from white noise to fan sounds, and the volume is adjustable. Now, I fall asleep to the sound of gentle rain every night.
+Living in a noisy neighborhood made it hard to sleep, but the **LectroFan White Noise Machine** solved that problem. One night, my neighbor decided to mow their lawn at 10 PM (yes, really!). I turned on the LectroFan, set it to the "gentle rain" sound, and within minutes, I couldn’t hear a thing. Now, it’s a permanent part of my bedtime routine.
 
 🔗 **[👉 Buy the LectroFan on Amazon](https://amzn.to/4kUfsvo)**  
 
