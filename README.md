@@ -42,6 +42,9 @@
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/hike.md">
     <b>The Ultimate Hiking Adventure </b> – My Journey with the Best Hiking Gear</a></li>
 
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/better_sleep.md">
+    <b>The Ultimate Hiking Adventure </b> – My Journey with the Best Hiking Gear</a></li>
+
 </ul>
 
 

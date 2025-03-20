@@ -6,61 +6,56 @@ For years, I struggled with sleepless nights. Tossing and turning, waking up gro
 
 ## The Weighted Blanket That Calmed My Mind: Gravity Blanket
 
-![Gravity Blanket](https://m.media-amazon.com/images/I/71Z9JdZ9ZJL._AC_SX679_.jpg)  
+![Gravity Blanket](https://cdn.shopify.com/s/files/1/2034/5801/products/GRV.OriginalWeighted.Grey.PDP1.jpg?v=1666652463)  
 *Alt Text: Gravity Weighted Blanket - Best Weighted Blanket for Better Sleep*
 
 The **Gravity Blanket** was a game-changer for me. Its gentle weight (I chose the 15-pound version) felt like a comforting hug, helping me relax and fall asleep faster. The breathable fabric kept me cool all night, and I woke up feeling refreshed instead of restless.
 
-🔗 **[👉 Buy the Gravity Blanket on Amazon](https://amzn.to/3xXyZzX)**  
-*(As an Amazon Associate, I earn from qualifying purchases.)*
+🔗 **[👉 Buy the Gravity Blanket on Amazon](https://amzn.to/4hn3es8)**  
 
 ---
 
 ## The White Noise Machine That Blocked Out Distractions: LectroFan
 
-![LectroFan White Noise Machine](https://m.media-amazon.com/images/I/61Z9JdZ9ZJL._AC_SX679_.jpg)  
+![LectroFan White Noise Machine](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwNPtM5O1vBfSanyKIw3jYl0wzW3lE8HYUVw&s)  
 *Alt Text: LectroFan White Noise Machine - Best Sound Machine for Sleep*
 
 Living in a noisy neighborhood made it hard to sleep, but the **LectroFan White Noise Machine** solved that problem. It offers 20 different sound options, from white noise to fan sounds, and the volume is adjustable. Now, I fall asleep to the sound of gentle rain every night.
 
-🔗 **[👉 Buy the LectroFan on Amazon](https://amzn.to/3xXyZzX)**  
-*(As an Amazon Associate, I earn from qualifying purchases.)*
+🔗 **[👉 Buy the LectroFan on Amazon](https://amzn.to/4kUfsvo)**  
 
 ---
 
 ## The Pillow That Supported My Neck: Coop Home Goods Eden Pillow
 
-![Coop Home Goods Eden Pillow](https://m.media-amazon.com/images/I/71Z9JdZ9ZJL._AC_SX679_.jpg)  
+![Coop Home Goods Eden Pillow](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSQG06tbctwEaRI8JdkdRwXwVHP3tXmUDbguQ&s)  
 *Alt Text: Coop Home Goods Eden Pillow - Adjustable Memory Foam Pillow for Better Sleep*
 
 I never realized how much my old pillow was hurting my neck until I tried the **Coop Home Goods Eden Pillow**. It’s filled with shredded memory foam, so you can adjust the loft to your preference. It’s also hypoallergenic and stays cool all night.
 
-🔗 **[👉 Buy the Coop Home Goods Eden Pillow on Amazon](https://amzn.to/3xXyZzX)**  
-*(As an Amazon Associate, I earn from qualifying purchases.)*
+🔗 **[👉 Buy the Coop Home Goods Eden Pillow on Amazon](https://amzn.to/4kN1w6n)**  
 
 ---
 
 ## The Sleep Tracker That Helped Me Understand My Habits: Fitbit Sense
 
-![Fitbit Sense](https://m.media-amazon.com/images/I/61Z9JdZ9ZJL._AC_SX679_.jpg)  
+![Fitbit Sense](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSl4drJ03KblJ_gUThxYyCUREOi8x9UyY022g&s)  
 *Alt Text: Fitbit Sense - Best Sleep Tracker for Monitoring Sleep Patterns*
 
 To improve my sleep, I needed to understand it first. The **Fitbit Sense** tracks my sleep stages, heart rate, and even my SpO2 levels. The insights helped me identify habits (like late-night screen time) that were disrupting my sleep.
 
-🔗 **[👉 Buy the Fitbit Sense on Amazon](https://amzn.to/3xXyZzX)**  
-*(As an Amazon Associate, I earn from qualifying purchases.)*
+🔗 **[👉 Buy the Fitbit Sense on Amazon](https://amzn.to/4hqlVv6)**  
 
 ---
 
 ## The Essential Oil Diffuser That Created a Relaxing Atmosphere: URPOWER Diffuser
 
-![URPOWER Diffuser](https://m.media-amazon.com/images/I/71Z9JdZ9ZJL._AC_SX679_.jpg)  
+![URPOWER Diffuser](https://m.media-amazon.com/images/G/01/apparel/rcxgs/tile._CB483369110_.gif)  
 *Alt Text: URPOWER Essential Oil Diffuser - Best Aromatherapy Diffuser for Sleep*
 
 I added the **URPOWER Diffuser** to my bedtime routine to create a calming atmosphere. A few drops of lavender oil, and my room smells like a spa. The soft LED lights add to the relaxing vibe, and the auto-shutoff feature gives me peace of mind.
 
-🔗 **[👉 Buy the URPOWER Diffuser on Amazon](https://amzn.to/3xXyZzX)**  
-*(As an Amazon Associate, I earn from qualifying purchases.)*
+🔗 **[👉 Buy the URPOWER Diffuser on Amazon](https://amzn.to/4ioulnW)**  
 
 ---
 
@@ -68,11 +63,11 @@ I added the **URPOWER Diffuser** to my bedtime routine to create a calming atmos
 
 Here’s a quick recap of the products that transformed my sleep:  
 
-1. **Weighted Blanket**: [Gravity Blanket](https://amzn.to/3xXyZzX)  
-2. **White Noise Machine**: [LectroFan](https://amzn.to/3xXyZzX)  
-3. **Pillow**: [Coop Home Goods Eden Pillow](https://amzn.to/3xXyZzX)  
-4. **Sleep Tracker**: [Fitbit Sense](https://amzn.to/3xXyZzX)  
-5. **Essential Oil Diffuser**: [URPOWER Diffuser](https://amzn.to/3xXyZzX)  
+1. **Weighted Blanket**: [Gravity Blanket](https://amzn.to/4hn3es8)  
+2. **White Noise Machine**: [LectroFan](https://amzn.to/4kUfsvo)  
+3. **Pillow**: [Coop Home Goods Eden Pillow](https://amzn.to/4kN1w6n)  
+4. **Sleep Tracker**: [Fitbit Sense](https://amzn.to/4hqlVv6)  
+5. **Essential Oil Diffuser**: [URPOWER Diffuser](https://amzn.to/4ioulnW)  
 
 ---
 
