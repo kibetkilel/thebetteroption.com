@@ -44,6 +44,15 @@
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/better_sleep.md">
     <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
+
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/batteries.md">
+    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
+
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/backyard.md">
+    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
+
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/travel.md">
+    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
 </ul>
 
 
