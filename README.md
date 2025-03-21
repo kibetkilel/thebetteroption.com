@@ -46,20 +46,19 @@
     <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/batteries.md">
-    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
+    <b>Discover the Best D Batteries </b> – Our Top Picks for Long-Lasting Power</a></li>
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/backyard.md">
-    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
+    <b>How I Transformed My Backyard into a Summer Oasis </b> </a></li>
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/travel.md">
-    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
-
+    <b>My First Solo Travel Experience </b> - Gear That Made It Amazing</a></li>
 
  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/electronics.md">
-    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
+    <b>Top 10 Must-Have Electronics on Amazon </b> –Gadgets That Will Upgrade Your Life</a></li>
 
    <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/kitchen.md">
-    <b>My Journey to Better Sleep </b> – Products That Transformed My Nights</a></li>
+    <b>Home & Kitchen </b> –Top 20 Best-Selling Items on Amazon</a></li>
 
 </ul>
 
