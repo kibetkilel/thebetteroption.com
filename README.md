@@ -55,14 +55,17 @@
     <b>My First Solo Travel Experience </b> - Gear That Made It Amazing</a></li>
 
  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/electronics.md">
-    <b>Top 10 Must-Have Electronics on Amazon </b> –Gadgets That Will Upgrade Your Life</a></li>
+    <b>Top 10 Must-Have Electronics on Amazon </b> – Gadgets That Will Upgrade Your Life</a></li>
 
    <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/kitchen.md">
-    <b>Home & Kitchen </b> –Top 20 Best-Selling Items on Amazon</a></li>
+    <b>Home & Kitchen </b> – Top 20 Best-Selling Items on Amazon</a></li>
 
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/health.md">
-    <b>Health & Personal Care</b> –Top 20 Best-Selling Items on Amazon</a></li>
+    <b>Health & Personal Care</b> – Top 20 Best-Selling Items on Amazon</a></li>
+
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/books.md">
+    <b> Books </b> – Top 20 Best-Selling Items on Amazon</a></li>
 
 
 </ul>
