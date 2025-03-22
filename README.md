@@ -68,10 +68,8 @@
     <b> Books </b> – Top 20 Best-Selling Items on Amazon</a></li>
 
 <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/cloth.md">
-    **Clothing & Accessories: Top 20 Best-Selling Items on Amazon (2024)**</li>
+    <b> Clothing & Accessories </b> – Top 20 Best-Selling Items on Amazon</a></li>
 </ul>
-
-
 
 ---
 
