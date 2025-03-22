@@ -1,4 +1,4 @@
-## 3. **Health & Personal Care: Top 20 Best-Selling Items on Amazon**
+## **Health & Personal Care: Top 20 Best-Selling Items on Amazon**
 
 Take care of your health and wellness with these **best-selling health and personal care products on Amazon**. From fitness trackers to skincare essentials, these items are designed to help you look and feel your best. Here are the **top 20 best-selling items** in the Health & Personal Care category:
 
