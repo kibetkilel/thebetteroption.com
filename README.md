@@ -60,6 +60,11 @@
    <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/kitchen.md">
     <b>Home & Kitchen </b> –Top 20 Best-Selling Items on Amazon</a></li>
 
+
+  <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/health.md">
+    <b>Health & Personal Care</b> –Top 20 Best-Selling Items on Amazon</a></li>
+
+
 </ul>
 
 
