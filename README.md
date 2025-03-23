@@ -72,11 +72,11 @@
 
 <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/cloth.md">
     <b> Pet Supplies </b> – Top 20 Best-Selling Pet Supplies on Amazon</a></li>
-</ul>
-
 
 <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/office.md">
     <b> Office & School Supplies </b> – Top 20 Best-Selling Office & School Supplies on Amazon</a></li>
+
+    
 </ul>
 
 ---
