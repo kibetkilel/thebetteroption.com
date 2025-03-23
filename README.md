@@ -58,17 +58,25 @@
     <b>Top 10 Must-Have Electronics on Amazon </b> – Gadgets That Will Upgrade Your Life</a></li>
 
    <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/kitchen.md">
-    <b>Home & Kitchen </b> – Top 20 Best-Selling Items on Amazon</a></li>
+    <b>Home & Kitchen </b> – Top 20 Best-Selling Home & Kitchen Items on Amazon</a></li>
 
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/health.md">
-    <b>Health & Personal Care</b> – Top 20 Best-Selling Items on Amazon</a></li>
+    <b>Health & Personal Care</b> – Top 20 Best-Selling Health & Personal Care Items on Amazon</a></li>
 
   <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/books.md">
-    <b> Books </b> – Top 20 Best-Selling Items on Amazon</a></li>
+    <b> Books </b> – Top 20 Best-Selling Books on Amazon</a></li>
 
 <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/cloth.md">
-    <b> Clothing & Accessories </b> – Top 20 Best-Selling Items on Amazon</a></li>
+    <b> Clothing & Accessories </b> – Top 20 Best-Selling Clothing & Accessories on Amazon</a></li>
+
+<li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/cloth.md">
+    <b> Pet Supplies </b> – Top 20 Best-Selling Pet Supplies on Amazon</a></li>
+</ul>
+
+
+<li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/office.md">
+    <b> Office & School Supplies </b> – Top 20 Best-Selling Office & School Supplies on Amazon</a></li>
 </ul>
 
 ---

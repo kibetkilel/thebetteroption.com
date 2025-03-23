@@ -1,4 +1,4 @@
-## 8. **Pet Supplies: Top 20 Best-Selling Items on Amazon (2024)**
+## 8. **Pet Supplies: Top 20 Best-Selling Items on Amazon**
 
 Keep your furry friends happy and healthy with these **best-selling pet supplies on Amazon**. From pet cameras to durable toys, these items are loved by pet owners worldwide. Here are the **top 20 best-selling items** in the Pet Supplies category:
 
