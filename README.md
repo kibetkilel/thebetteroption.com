@@ -76,7 +76,9 @@
 <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/office.md">
     <b> Office & School Supplies </b> – Top 20 Best-Selling Office & School Supplies on Amazon</a></li>
 
-    
+<li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/sports.md">
+    <b> Outdoor & Sports</b> – Top 20 Best-Selling Outdoor & Sports items on Amazon</a></li>
+
 </ul>
 
 ---
