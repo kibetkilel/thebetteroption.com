@@ -79,6 +79,9 @@
 <li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/sports.md">
     <b> Outdoor & Sports</b> – Top 20 Best-Selling Outdoor & Sports items on Amazon</a></li>
 
+
+<li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/sports.md">
+    <b> Baby Products</b> – Top 20 Best-Selling Baby Products items on Amazon</a></li>
 </ul>
 
 ---
