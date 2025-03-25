@@ -80,8 +80,15 @@
     <b> Outdoor & Sports</b> – Top 20 Best-Selling Outdoor & Sports items on Amazon</a></li>
 
 
-<li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/sports.md">
+<li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/baby.md">
     <b> Baby Products</b> – Top 20 Best-Selling Baby Products items on Amazon</a></li>
+</ul>
+
+
+<li>💨 <a href="https://github.com/kibetkilel/thebetteroption.com/blob/main/posts/best/hdd.md">
+    <b> Best-Rated Hard Disk Drives on Amazon</b></a>
+    
+    </li>
 </ul>
 
 ---

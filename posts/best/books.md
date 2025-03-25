@@ -8,7 +8,8 @@ Discover the **best-selling books on Amazon** that are captivating readers world
 ![Atomic Habits](https://cdnattic.atticbooks.co.ke/img/V115044.jpg)  
 *Alt Text: Atomic Habits - Best Book for Building Good Habits*
 
-**Atomic Habits** by James Clear is a groundbreaking book that teaches you how to build good habits and break bad ones. It’s a must-read for anyone looking to improve their life.
+**Atomic Habits** by James Clear is a groundbreaking book that teaches you how to build good habits and break bad ones. 
+It’s a must-read for anyone looking to improve their life.
 
 🔗 **[👉 Buy Atomic Habits on Amazon](https://amzn.to/4iUvKTb)**  
 *(As an Amazon Associate, I earn from qualifying purchases.)*
