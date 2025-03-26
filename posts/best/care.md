@@ -1,6 +1,6 @@
 # Best Sellers in Beauty & Personal Care - Top Rated Products 
 
-![Amazon Beauty Best Sellers](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQRYTA0z8lFMBFSHyv00sAH8LJuQy2nKeMUpw&s "Top-Rated Beauty Products on Amazon")
+![Amazon Beauty Best Sellers](https://akns-images.eonline.com/eol_images/Entire_Site/2022820/rs_1024x759-220920141153-1024-Amazon_Most_Loved_Beauty_Products-gj.jpg?fit=around%7C1024:759&output-quality=90&crop=1024:759;center,top "Top-Rated Beauty Products on Amazon")
 
 Discover the **most popular beauty and personal care products** on Amazon this year. Our curated selection includes award-winning skincare, hair care essentials, and must-have grooming tools - all verified bestsellers with thousands of positive reviews.
 
