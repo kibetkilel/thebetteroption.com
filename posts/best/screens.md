@@ -1,4 +1,4 @@
-# My Samsung T35F Monitor Journey: Work, Play & Eye Comfort  
+#  Best 1920x1080 Monitors - Elevate Your Viewing Experience
 
 ![Samsung 27-inch T35F IPS Monitor](https://m.media-amazon.com/images/I/71q6S+EnA-L.jpg "Samsung 27\" FHD IPS Monitor with Borderless Design")  
 
