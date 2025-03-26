@@ -1,4 +1,4 @@
-# 20 Best-Rated Hard Disk Drives on Amazon (2024) - Real User Experiences
+# 20 Best-Rated Hard Disk Drives on Amazon - Real User Experiences
 
 ## 🏆 Top Performance HDDs
 
