@@ -236,9 +236,6 @@ Have you tried any of these clothing items or accessories? Do you have other fav
 
 ---
 
-## Stay Updated
-
-If you enjoyed this post, consider **starring this repository** to show your support. You can also **fork this repository** to create your own version or share it with others.
 
 ---
 
