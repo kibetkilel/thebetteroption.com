@@ -1,6 +1,6 @@
 # My Samsung T35F Monitor Journey: Work, Play & Eye Comfort  
 
-![Samsung 27-inch T35F IPS Monitor](https://m.media-amazon.com/images/I/71q6S+EnA-L.jpg "Samsung 27" FHD IPS Monitor with Borderless Design")  
+![Samsung 27-inch T35F IPS Monitor](https://m.media-amazon.com/images/I/71q6S+EnA-L.jpg)  
 
 *How this budget-friendly 75Hz display became my perfect workspace upgrade*  
 
