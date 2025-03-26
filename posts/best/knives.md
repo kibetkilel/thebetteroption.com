@@ -308,4 +308,116 @@ A **bulk set of 500 heavyweight plastic knives**, perfect for catering, parties,
 👉 **[Get it on Amazon](https://amzn.to/425NBQk)**  
 
 ---  
+
+### 1️⃣7️⃣ **HENCKELS Classic Razor-Sharp 8-inch Slicing Knife**  
+
+![HENCKELS Classic Razor-Sharp 8-inch Slicing Knife](https://m.media-amazon.com/images/I/61VxzQYWhnL.jpg)
+
+🔧 **German Engineered with 100+ Years of Mastery**  
+A high-quality **stainless steel slicing knife** for precise and effortless cutting.  
+
+🔪 **Razor-Sharp Precision** – Effortless slicing.  
+🛡 **Durable Stainless Steel** – Long-lasting performance.  
+🎁 **Ideal for Professional & Home Use** – A must-have tool.  
+
+⭐ **Rating:** 4.7/5 (15.1K reviews)  
+🔥 **3000+ bought in the past month**  
+
+👉 **[Get it on Amazon](https://amzn.to/3FSvXrv)**  
+
+---  
+
+### 1️⃣8️⃣ **imarku Chef Knife 7 Inch Ultra Sharp Santoku Knife**  
+
+![imarku Chef Knife 7 Inch Ultra Sharp Santoku Knife](https://m.media-amazon.com/images/I/615Jcxn67dL._AC_SL1500_.jpg)
+
+🔧 **Japanese Steel Precision**  
+A **7-inch ultra-sharp Santoku knife** designed for chefs and home cooks alike.  
+
+🔪 **7Cr17Mov Japanese Steel** – Superior sharpness.  
+🛡 **Ergonomic Handle** – Comfortable grip.  
+🎁 **Perfect for Any Kitchen** – Versatile & reliable.  
+
+⭐ **Rating:** 4.6/5 (5.6K reviews)  
+🔥 **800+ bought in the past month**  
+
+👉 **[Get it on Amazon](https://amzn.to/4l3CyQb)**  
+
+---  
+
+### 1️⃣9️⃣ **PAUDIN Nakiri Knife - 7" Razor Sharp Meat Cleaver & Vegetable Knife**  
+
+![PAUDIN Nakiri Knife - 7" Razor Sharp Meat Cleaver & Vegetable Knife](https://m.media-amazon.com/images/I/715g8IClY7L.jpg)
+
+🔧 **Multipurpose Kitchen Knife**  
+A **high-carbon stainless steel Nakiri knife** perfect for chopping vegetables and meat.  
+
+🔪 **Razor-Sharp Blade** – Precise & efficient cuts.  
+🛡 **Ergonomic Handle** – Comfortable grip.  
+🎁 **Ideal for Home & Professional Use** – A kitchen essential.  
+
+⭐ **Rating:** 4.7/5 (31.8K reviews)  
+🔥 **2K+ bought in the past month**  
+  
+👉 **[Get it on Amazon](https://amzn.to/4iESFBX)**  
+
+---  
+
+### 2️⃣0️⃣ **Cuisinart 12-Piece Kitchen Knife Set, Advantage Color Collection**  
+
+![Cuisinart 12-Piece Kitchen Knife Set, Advantage Color Collection](https://m.media-amazon.com/images/I/61QPZi74vfL._AC_SL1500_.jpg)
+
+🔧 **Multicolored Knife Set with Blade Guards**  
+A **12-piece stainless steel knife set** with color-coded blades for easy identification.  
+
+🔪 **Razor-Sharp Stainless Steel Blades** – Durable & precise.  
+🛡 **Includes Blade Guards** – Safe storage.  
+🎁 **Great for Everyday Use** – Stylish & practical.  
+
+⭐ **Rating:** 4.7/5 (16.5K reviews)  
+🔥 **5000+ bought in the past month**  
+ 
+👉 **[Get it on Amazon](https://amzn.to/3QLlAbs)**  
+
+---  
+
+### 2️⃣1️⃣ **PAMI Medium-Weight Disposable Plastic Knives [400-Pack]**  
+
+![PAMI Medium-Weight Disposable Plastic Knives](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSRTwVcUQcVO6MtUxmHLIhfH390IjJBAbuJ-A&s)
+
+🔧 **Bulk Pack of Sturdy Disposable Knives**  
+A **400-pack of medium-weight plastic knives**, ideal for parties, weddings, and catering.  
+
+🔪 **Sturdy & Reliable** – Perfect for events.  
+🛡 **Single-Use Convenience** – No cleanup needed.  
+🎁 **Great for Large Gatherings** – Bulk pack.  
+
+⭐ **Rating:** 3.6/5 (356 reviews)  
+🔥 **500+ bought in the past month**  
+💲 **$11.99** (1 new offer)  
+👉 **[Get it on Amazon](https://amzn.to/43XI1BN)**  
+
+---  
+
+### 2️⃣2️⃣ **HENCKELS Razor-Sharp Steak Knife Set of 8**  
+
+![HENCKELS Razor-Sharp Steak Knife Set of 8](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSRTwVcUQcVO6MtUxmHLIhfH390IjJBAbuJ-A&s)
+
+🔧 **German Engineered, Razor-Sharp Performance**  
+A **set of 8 high-quality steak knives**, perfect for precise slicing.  
+
+🔪 **Razor-Sharp Stainless Steel Blades** – Smooth cutting.  
+🛡 **Ergonomic Handle** – Comfortable to hold.  
+🎁 **Perfect for Steak Lovers** – Must-have dining set.  
+
+⭐ **Rating:** 4.6/5 (4.1K reviews)  
+🔥 **900+ bought in the past month**  
+💲 **$35.49** (14 used & new offers)  
+👉 **[Get it on Amazon](https://amzn.to/4l3v5jX)**  
+
+---  
+
+
+
+
 These extra lines make each **knife set feel more premium and useful**, encouraging potential buyers to make a **confident purchase**. Let me know if you'd like any further refinements! 🚀  
